@@ -13,3 +13,7 @@ VNNet , Hide My IP VPN
 :white_check_mark: ЧЕК
 :black_square_button: НОТчек
 #########
+- https://www.dataquest.io/
+
+- https://www.codecademy.com/
+- https://www.coursera.org/
