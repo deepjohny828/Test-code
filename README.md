@@ -19,4 +19,5 @@ VNNet , Hide My IP VPN
 - https://www.coursera.org/
 
 yarkka4v1p@dygovil.com
-!ewsajdifj2@#,,m
+!ewsajdifj2@#,,m  
+https://chatgpt.com/share/67c14677-ba40-800c-b7c8-02780c71d9cb
